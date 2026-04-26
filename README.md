@@ -18,5 +18,5 @@ I’m looking to collaborate on:
 - Educational content creation in technology
 
 ## 📫 How to reach me:
-- Email: harsh.rai@s.amity.edu
+- Email: harshraia@gmail.com
 - LinkedIn: (https://www.linkedin.com/in/harsh-rai-80133b251/)
